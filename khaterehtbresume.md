@@ -1,6 +1,6 @@
 Khatereh Tabebordbar
 ===
-Seattle, WA  |  Khaterehtabe@gmail.com  |  (425) 533-1938
+Seattle, WA  |  Khaterehtabe@gmail.com  |  (425) 533-1938 |
 [khaterehtb.com ](http://khaterehtb.com/ "khaterehtb.com ")  |  [linkedin.com/in/khaterehtb/](https://www.linkedin.com/in/khaterehtb/ "linkedin.com/in/khaterehtb/")  | 
 
 With over 3 years of experience in UX and Graphic Design, Khatereh is a self-driven creative who leverages her natural creativity and acquired skills to collaborate on elegant solutions to complex problems.she is Self-Motivated, Self-Starter, and Team Player,she can work with minimal supervision and Effective Communication, Willing to learn and passionate to grow.
